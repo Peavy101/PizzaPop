@@ -6,4 +6,6 @@ I made this game in an afternoon during Christmas time after having gotten a bun
 
 I might fix it eventually, but then again. I might not.
 
+Play it here: https://peavy101.itch.io/pizza-pop
+
 Peavy101
